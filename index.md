@@ -2,7 +2,7 @@ Joe Frixon
 ============
 ---   
 
-RRB406, Rosedale Apts, 603103, Chennai, TN, India                                                         | frixon@gmail.com     | @joefrixon     | +91 99625 10320   
+RRB406, Rosedale Apts, 603103, Chennai, TN, India                                                         | frixon@gmail.com     | #joefrixon     | +91 99625 10320   
 
 ---
 
